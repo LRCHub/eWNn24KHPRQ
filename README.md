@@ -1,0 +1,97 @@
+# Mori Calliope – 未来島
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+危険な海に浮かぶ島エッグヘッド
+世界変える未来島のラボフェーズ
+最高の頭脳
+叶えるよ願望
+未来のお宝さがしちゃお
+天才
+が引き起こす発想の奇跡
+脳内
+で終わらせない夢のファンタジー
+世界
+がひっくり返るテクノロジー
+大体
+叶えちゃうラボラトリー
+正(シャカ)
+悪(リリス)
+想(エジソン)
+知(ピタゴラス)
+暴(アトラス)
+欲(ヨーク)
+6人のサテライト
+湧きだすアイディア
+止まらない
+忙しすぎて
+猫の手も借りたい
+海も波も超えてゆく海賊王
+常識変えてゆく発明王
+そんな奴らに憧れてきた
+次は誰が王になる?
+無限の夢
+未来の知恵
+ひらめきを巻き起こせ
+エッグヘッド
+無限の夢
+未来の知恵
+過去も世界も飛び越して
+ベガパンク
+生み出すよアイディア
+ベガパンク
+ベガパンク
+革命をここから
+ベガパンク
+危険な海に浮かぶ島エッグヘッド
+世界変える未来島のラボフェーズ
+This mind is undefeated
+Until my goal's completed
+Let's keep on searching for the treasure of "
+to-come"
+Genius
+A miracle idea, gotta set it free
+Mysterious
+Fantastic dreams are burning up inside of me
+Deliriously
+Turn the world around with new technology
+Here we come
+A laboratory cast upon the sea
+Truth fades into Evil
+Then to Contents of Mind
+Right into Knowledge, Greed and Violence
+Six satellites
+Ideas can't stop rushing out
+Stop thinking they might
+Could use a hand or two, I'm busy working into
+the night
+The pirate king who braves the ocean while in
+search of elysian
+A ruler of invention that can modify all reason
+…
+Once watched in jealousy, no someday I've gotta
+be
+Next on the throne, I know what I've got to do
+無限の夢
+未来の知恵
+ひらめきを巻き起こせ
+エッグヘッド
+無限の夢
+未来の知恵
+過去も世界も飛び越して
+ベガパンク
+生み出すよアイディア
+ベガパンク
+ベガパンク
+革命をここから
+ベガパンク
+言うこと聞かなきゃ振りかざす正義
+世界守る軍団の大義
+秘密巡る怪しいたくらみ
+過去の記憶に隠された狂気
+真実追う危険な遊戯
+謎に満ちた理想の夢のエネルギー
+天才が魅せる世界のカタチ
+どこへ向かう未来の島エッグヘッド
+```
